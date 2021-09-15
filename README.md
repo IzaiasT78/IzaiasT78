@@ -6,4 +6,3 @@
 - 📚 Busco sempre está atualizado e em constante aprendizado.
 - 👦 Sou comunicativo e com um bom relacionamento interpessoal.  
 
--->
