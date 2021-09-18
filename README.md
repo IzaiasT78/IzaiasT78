@@ -9,7 +9,7 @@
 - 👦 Sou comunicativo e com um bom relacionamento interpessoal.  
 
   ##
-
+ 
   
   ##
   
