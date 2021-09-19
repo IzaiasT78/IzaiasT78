@@ -9,7 +9,7 @@
 - 👦 Sou comunicativo e com um bom relacionamento interpessoal.  
 
   ##
- 
+  ![CCNA](https://user-images.githubusercontent.com/79670395/133911373-96705e12-b6ca-4899-a5c1-44c4d0acb301.jpg)
   
   ##
   
